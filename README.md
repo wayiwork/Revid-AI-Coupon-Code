@@ -21,7 +21,7 @@ Stack the code with annual billing and you're getting a real discount. On the Gr
  
 ## How to Apply the Code
  
-1. Go to Revid AI pricing — [grab the discount here](YOUR-AFFILIATE-LINK)
+1. Go to Revid AI pricing — [grab the discount here](https://wayiwork.com/go-revid-ai)
 2. Pick your plan
 3. Enter **WAYIWORK20** at checkout
 4. Confirm the discount shows before you pay
@@ -35,7 +35,7 @@ Hobby plan starts at $39/month. Growth and Ultra tiers above that for higher vol
  
 Full guide including all plan details, what's included, and current deals:
  
-[Revid AI deals and promo codes — WayIWork](YOUR-WAYIWORK-PAGE-URL)
+[Revid AI deals and promo codes — WayIWork](https://wayiwork.com/perks/revid-ai/)
  
 ---
  
