@@ -1,5 +1,4 @@
 # Revid-AI-Coupon-Code
-# Revid AI Coupon Code (2026) — Verified 20% Off
  
 Want a working Revid AI promo code? Most of what you'll find online is fake. Codes claiming 75% or 80% off don't work at checkout. Here's what actually does.
  
