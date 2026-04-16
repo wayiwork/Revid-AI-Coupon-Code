@@ -21,7 +21,7 @@ Stack the code with annual billing and you're getting a real discount. On the Gr
  
 ## How to Apply the Code
  
-1. Go to Revid AI pricing — [grab the discount here](https://wayiwork.com/go-revid-ai)
+1. Go to Revid AI pricing — [grab the discount here](https://www.revid.ai/?via=wayiwork))
 2. Pick your plan
 3. Enter **WAYIWORK20** at checkout
 4. Confirm the discount shows before you pay
